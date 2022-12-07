@@ -1,5 +1,5 @@
 - 👋 Hola, soy Sebastian Dalmasso
-- 📫 Si quieres contactar conmigo sebadalmasso@gmail.com ...
+- 📫 Si quieres contactar conmigo sebadalmasso4@gmail.com ...
 
 :bell: www.linkedin.com/in/sebadalmasso
 
